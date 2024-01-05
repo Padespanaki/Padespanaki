@@ -3,9 +3,9 @@
 
 - 🍭 I'm a Data Scientist
 
-- 🎨 Check out some of my work (You can download all for free): [ITCH.IO](https://padespanaki.itch.io/)
+- 🎨 Check out some of my work (You can download all for FREE): [ITCH.IO](https://padespanaki.itch.io/)
 
-- 📫 Feel free to reach out **padespanaki@gmail.com**
+- 📫 Let's talk about pixel art, gaming, or anything creative: **padespanaki@gmail.com**
 
 - 🍝 Love spaghetti and playing games
 
