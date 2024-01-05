@@ -3,7 +3,7 @@
 
 - 🍭 I'm a Data Scientist
 
-- 🎨 Check out some of my work (You can download all for free): [ITCH.IO]([https://medium.com/@o.eleftherakou](https://padespanaki.itch.io/))
+- 🎨 Check out some of my work (You can download all for free): [ITCH.IO]([https://padespanaki.itch.io/])
 
 - 📫 Feel free to reach out **padespanaki@gmail.com**
 
